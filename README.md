@@ -49,15 +49,6 @@ QQ：2971269700
 
 >「slmxf」有很多叫法，你可以说「so_langman_xiaoFeng」，也可以说小枫，还可以说史莱姆小枫、死了吗小枫、睡了没媳妇等等等等……官方叫法「so_langman_xiaoFeng」
 
->头图：
->
->![](https://upload-bbs.miyoushe.com/upload/2024/01/19/262976324/3edc876d6ee594bb1bb6164db1dfad71_7462692543233906243.png?x-oss-process=image/resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,png)
->
->![](https://cdn.luogu.com.cn/upload/image_hosting/dmgrkpli.png)  
->![](https://cdn.luogu.com.cn/upload/image_hosting/quf907rn.png)  
->![](https://cdn.luogu.com.cn/upload/image_hosting/0gj3d8kz.png)  
->![](https://cdn.luogu.com.cn/upload/image_hosting/wpp5cs8b.png)  
-
 友链：[?](https://www.luogu.com.cn/paste/ae8wcxhz)
 
 [](https://www.miyoushe.com/sr/article/39407043)原名：so_langman_xiaoFeng（应该叫SLMXF啊）[](网易player：https://cg.163.com/#/mobile)[$\color{white}mc$](https://classic.minecraft.net/?join=HzMvOYOmvyNDBYtq)
